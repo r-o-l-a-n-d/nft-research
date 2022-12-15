@@ -38,3 +38,4 @@ https://opensea.io/
 https://icy.tools/
 
 
+Note: NFTS SUCK
